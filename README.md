@@ -1,5 +1,4 @@
 # Made BY @Anh2Ten 
-iCloud VN - Made BY @Anh2Ten 
 
 STK MB BANK:
 MB Bank (Vietnamese Only)
